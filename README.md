@@ -1,1 +1,1 @@
-# zakrivayuschiy-teg-ad
+https://github.com/k1aner7/zakrivayuschiy-teg-ad
